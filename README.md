@@ -1,0 +1,4 @@
+- i exist
+- im on lua sandbox on roblox alot
+- i like scripting
+- scripting cool
